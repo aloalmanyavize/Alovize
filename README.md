@@ -1,4 +1,4 @@
-# ALO Vize | Dijital Projeler
+# ALO Almanya Vİze | Dijital Projeler
 
 Türkiye merkezli vize bilgilendirme, öğrenci hareketliliği ve dijital yayıncılık projeleri geliştiriyoruz.
 
